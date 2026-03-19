@@ -1,5 +1,5 @@
 # Jin Ziqi
-If I am not diving in research, you can see me active in X, xiaohongshu. 😴
+If I am not diving in research, you can see me active training my doggies.
 
 Research Direction:
 
