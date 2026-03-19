@@ -6,6 +6,10 @@ I'm a 2nd-year PhD student at NTU, advised by Prof. Aixin Sun. My research mostl
 
 Most days, I'm just flowing in research fields, or dog agility fields with my dog, Peyto.
 
+<p align="left">
+  <img src="./images/peyto_agility.gif" alt="Peyto and me in flow" width="400" />
+</p>
+
 ### ☕ Off the Clock
 
 - 🎞️ Shooting film around Singapore or hunting down rare gemstones.
