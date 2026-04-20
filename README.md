@@ -13,7 +13,7 @@ Most days, I'm just flowing in research fields, or dog agility fields with my do
 ### ☕ Off the Clock
 
 - 🎞️ Shooting film around Singapore or hunting down rare gemstones.
-- 🍵 Sipping on homemade cold brew tea.
+- 🍵 Sipping on homemade cold brew tea. (I quit, please buy Allpress coffee instead, it's too good)
 
 ---
 
